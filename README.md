@@ -1,4 +1,4 @@
-<p><strong>Best Natural Supplements for Blood Sugar Control: What the Evidence Says</strong></p>
+<h1><strong>Best Natural Supplements for Blood Sugar Control: What the Evidence Says</strong></h1>
 <p><em><span style="font-weight: 400;">This article is general information, not medical, legal or financial advice. Supplements do not cure diabetes and must never replace insulin or prescribed medicine. Do not stop or change any diabetes medication without your doctor. Talk to your doctor or pharmacist before adding any supplement, because some can cause blood sugar to drop too low or interact with your medicine.</span></em></p>
 <p><span style="font-weight: 400;">A few natural supplements, mainly berberine, magnesium, chromium and cinnamon, have shown small blood sugar benefits in some studies.&nbsp;</span></p>
 <p><span style="font-weight: 400;">The evidence is mixed, and the National Center for Complementary and Integrative Health (NCCIH) says there is not enough evidence to show that any dietary supplement can help manage or prevent type 2 diabetes.&nbsp;</span></p>
